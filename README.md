@@ -9,6 +9,10 @@ HANDSOME PEACOCK:
 
 I'm seeing and hearing this peacock through the window often, of late. I could able to derive the polynomial function of shade and gradient of the color in its fine texture which unravels the 'n' number of possibilities to perceive the color codes. But the way of people's minimalism have reduced the billion possibilities into mere binary outlook. It's not a sad reality, but a bad enigma.
 
+ACTORS:
+
+The stream of International Relations, undisputedly, has actors in the global stage. The pain which is being inflicted among the global actors using nukes is less compared to that of men folks who assumes our immediate position of day to day life. I'll tell you how it's high for daily folks. Here's the underpinning factor wherein these daily actors acts superficial subtly like in K-Dramas. Despite being artificial actions are for their own entertainment, it really translates into actual pain.
+
 BANANA LEAF:
 
 This banana leaf have a distinct attribute as same as human evolution, it craves for the existence by sculpting itself amidst the wear and tear of shear wind which eagerly waits to break the matter. By the way, this view, I suppose there is a golden mean of biocentric and anthropocentric ideas. No leanings to one such frame of these ideas.
