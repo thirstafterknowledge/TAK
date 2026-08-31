@@ -1,6 +1,10 @@
 Jump into the pool of knowledge discourse.
 Reading that is complex. Behind that proposition, everything is as simple as that!
 
+DHARMA VS. ADHARMA:
+
+Mentioning virus may fill a stereotype, but a live attenuated virus has some special utility to build immunity in bodily mechanics. Where this, Bhagavat Gita's framework elucidates the Lord Krishna's ultimate dharma is to eradicate the adharma even when the situation demands adharmic action to preserve the righteousness. Now, posing a figure of speech, Iran's nuclear enrichment is convincing?
+
 NEW IDEA:
 
 Think of something which you haven't ever seen! And I'll tell you the reference where you took it from. So, it's the system's setting already built up around you, push further and sets you in setting of future. Try a little bit by clubbing the clumsy one's. It ends up the same. While I'm trying to think of those new one's, it's my real existence where I'm seeing you all with new faces in new places with unique attributes and characteristics. That's never seen before right?! Or else already seen in setting..
