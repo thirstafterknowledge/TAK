@@ -1,6 +1,10 @@
 Jump into the pool of knowledge discourse.
 Reading that is complex. Behind that proposition, everything is as simple as that!
 
+RECOGNISE VULTURE:
+
+Removing a vulture from the ecosystem with a notion of inferiority will dedicate disease in environment. Discipline - Biology and Anthropology. Do they bring any hostility against each other? Not necessarily, but used to collide when anthropocentric view protruded human thinking as first and foremost over the biocentric lens. Biology offers the proportionality and appropriate interlinks in food web to both flora and fauna. Hiccups occurs through human thinking and its ranking of the species as inferior or superior.
+
 DHARMA VS. ADHARMA:
 
 Mentioning virus may fill a stereotype, but a live attenuated virus has some special utility to build immunity in bodily mechanics. Where this, Bhagavat Gita's framework elucidates the Lord Krishna's ultimate dharma is to eradicate the adharma even when the situation demands adharmic action to preserve the righteousness. Now, posing a figure of speech, Iran's nuclear enrichment is convincing?
