@@ -1,6 +1,10 @@
 Jump into the pool of knowledge discourse.
 Reading that is complex. Behind that proposition, everything is as simple as that!
 
+THINK:
+
+Tell me an instance when you try to refrain from thinking. Most of the time, people use to ask this: why put more things in our heads every time? I mean, this is not intentionally putting things on our foreheads; rather, the human genome places our thoughts in the rear seat, called lateral thinking. The lateral part helps us keep vigil and induces a gut instinct where we'll prepare for any scenario with an appropriate response. What about dreams? Are we thinking deliberately, or is it an involuntary one?
+
 RECOGNISE VULTURE:
 
 Removing a vulture from the ecosystem with a notion of inferiority will dedicate disease in environment. Discipline - Biology and Anthropology. Do they bring any hostility against each other? Not necessarily, but used to collide when anthropocentric view protruded human thinking as first and foremost over the biocentric lens. Biology offers the proportionality and appropriate interlinks in food web to both flora and fauna. Hiccups occurs through human thinking and its ranking of the species as inferior or superior.
