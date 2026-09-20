@@ -1,6 +1,10 @@
 Jump into the pool of knowledge discourse.
 Reading that is complex. Behind that proposition, everything is as simple as that!
 
+SUSTENANCE:
+
+How are the ideas of philosophers set in motion and still stand the test of time? These ideas are being contested and compete with rivalries. Is it rational? Be that as it may, ideas find survival when they occupy discourse and dialectics. As long as discussion continues, the facade of ideas may undergo change, but the crux and core won't change. That's why the profound nature of ideas exists and derives its relevance when necessity dictates.
+
 THINK:
 
 Tell me an instance when you try to refrain from thinking. Most of the time, people use to ask this: why put more things in our heads every time? I mean, this is not intentionally putting things on our foreheads; rather, the human genome places our thoughts in the rear seat, called lateral thinking. The lateral part helps us keep vigil and induces a gut instinct where we'll prepare for any scenario with an appropriate response. What about dreams? Are we thinking deliberately, or is it an involuntary one?
