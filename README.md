@@ -1,6 +1,10 @@
 Jump into the pool of knowledge discourse.
 Reading that is complex. Behind that proposition, everything is as simple as that!
 
+FEAR:
+
+You feel fear? Check the balance sheet. As per Gandhi's calculus, we can identify that the actions are on par with the inner conscience. This session belongs to T.N. Seshan, who rattled the political plots during the '90s. Still, the civis of the system are expecting the reset of the golden mean right now. He didn't correct the material actions, but rather injected the code of conduct into the conscience. That is why the watershed moment is underpinned by this instilled fear.
+
 SUSTENANCE:
 
 How are the ideas of philosophers set in motion and still stand the test of time? These ideas are being contested and compete with rivalries. Is it rational? Be that as it may, ideas find survival when they occupy discourse and dialectics. As long as discussion continues, the facade of ideas may undergo change, but the crux and core won't change. That's why the profound nature of ideas exists and derives its relevance when necessity dictates.
