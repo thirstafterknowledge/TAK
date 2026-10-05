@@ -1,6 +1,10 @@
 Jump into the pool of knowledge discourse.
 Reading that is complex. Behind that proposition, everything is as simple as that!
 
+SUCCESS CRITERIA:
+
+Why does the entrant of truth take an inconsiderate amount of time from principles to practices? Converting an idea into a material fact is challenging and nudges high time to venture into calculated risks. The evaluated time frame for conversion varies based on the intensity of the idea. In fact, brute luck won't help in the case of a genuine cause of ideation. What buttresses the idea is eliminating the negative check points within the idea rather than negative externalities.
+
 FEAR:
 
 You feel fear? Check the balance sheet. As per Gandhi's calculus, we can identify that the actions are on par with the inner conscience. This session belongs to T.N. Seshan, who rattled the political plots during the '90s. Still, the civis of the system are expecting the reset of the golden mean right now. He didn't correct the material actions, but rather injected the code of conduct into the conscience. That is why the watershed moment is underpinned by this instilled fear.
