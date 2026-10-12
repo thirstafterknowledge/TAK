@@ -1,6 +1,10 @@
 Jump into the pool of knowledge discourse.
 Reading that is complex. Behind that proposition, everything is as simple as that!
 
+COMPLICATIONS:
+
+Decryption, these days require a fraction of time. Many think that my words are imprisoned by hefty words that sink the brainy identity to the bottom. Think upon the scholars who were at the custody of fascist regime and thought in such way to posit the proposition. High time for Gramsci who adapted the brutality and adopted the articulation subtly in camps of totalitarians. The same here has been executed so as to get an imprint of ideas for future. 
+
 SUCCESS CRITERIA:
 
 Why does the entrant of truth take an inconsiderate amount of time from principles to practices? Converting an idea into a material fact is challenging and nudges high time to venture into calculated risks. The evaluated time frame for conversion varies based on the intensity of the idea. In fact, brute luck won't help in the case of a genuine cause of ideation. What buttresses the idea is eliminating the negative check points within the idea rather than negative externalities.
