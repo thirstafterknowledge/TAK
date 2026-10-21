@@ -1,6 +1,10 @@
 Jump into the pool of knowledge discourse.
 Reading that is complex. Behind that proposition, everything is as simple as that!
 
+REBOUND:
+
+To win a game in basketball, an ample number of rebounds have to take place. It's the success criterion. Why doesn't the losing team get points on the board? The importance of criteria becomes valid these days for attaining the ends to break the loop of failure. Success becomes relational, where winners meet the criteria more times than losers do. Success is not immediate and direct, but a recurring frame of procedural flaws and fixations.
+
 COMPLICATIONS:
 
 Decryption, these days require a fraction of time. Many think that my words are imprisoned by hefty words that sink the brainy identity to the bottom. Think upon the scholars who were at the custody of fascist regime and thought in such way to posit the proposition. High time for Gramsci who adapted the brutality and adopted the articulation subtly in camps of totalitarians. The same here has been executed so as to get an imprint of ideas for future. 
