@@ -1,6 +1,10 @@
 Jump into the pool of knowledge discourse.
 Reading that is complex. Behind that proposition, everything is as simple as that!
 
+SUBJECTIVITY:
+
+Really philosophy turn into scientific language? Perceiving Newton's story will drive us to realise that the three sets of derivations implicitly apply to the human sciences, and not only to the natural sciences. If I am given MCQs with three options to select any one, I will consider all as a part of the humanities, because the human sciences are subjective, not objective.
+
 REBOUND:
 
 To win a game in basketball, an ample number of rebounds have to take place. It's the success criterion. Why doesn't the losing team get points on the board? The importance of criteria becomes valid these days for attaining the ends to break the loop of failure. Success becomes relational, where winners meet the criteria more times than losers do. Success is not immediate and direct, but a recurring frame of procedural flaws and fixations.
