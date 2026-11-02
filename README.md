@@ -1,6 +1,10 @@
 An unit of Project Think Man(Manchester) - A Think Tank. Jump into the pool of knowledge discourse.
 Reading that is complex. Behind that proposition, everything is as simple as that!
 
+DUTIES:
+
+How to filter out the chosen one from the masses? While deontology provides duty-bound ethics wherein the karm is to do with dharm, if one can disappear the core density of the thick atmosphere with vigour and rigour, then the righteous responsibilities will burden the karyakarta, believing one's mission will be hefty enough and punishing for a temporary temporal space.
+
 SUBJECTIVITY:
 
 Really philosophy turn into scientific language? Perceiving Newton's story will drive us to realise that the three sets of derivations implicitly apply to the human sciences, and not only to the natural sciences. If I am given MCQs with three options to select any one, I will consider all as a part of the humanities, because the human sciences are subjective, not objective.
