@@ -1,6 +1,10 @@
 Jump into the pool of knowledge discourse.
 Reading that is complex. Behind that proposition, everything is as simple as that!
 
+CRACKERS:
+
+In the first place, do we need a cracker to explode? Let's take the cracker and confirm the material medium with affirmative checks and balances to find the veracity of the impact. The immediate effect is all about the three physical properties of energy. Whereas the lasting feel is joyful and memorable moments. It is the same and even applicable to an idea in place of crackers. An idea requires a longer waiting period than a cracker fuse to explode. Ignite the fuse and step away. Safest option.
+
 DUTIES:
 
 How to filter out the chosen one from the masses? While deontology provides duty-bound ethics wherein the karm is to do with dharm, if one can disappear the core density of the thick atmosphere with vigour and rigour, then the righteous responsibilities will burden the karyakarta, believing one's mission will be hefty enough and punishing for a temporary temporal space.
